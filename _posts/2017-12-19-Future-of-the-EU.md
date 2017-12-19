@@ -28,4 +28,6 @@ Scotland had held a referendum in 2014, on whether Scotland should be an indepen
 
 Similar referendums could also be held in Northern Ireland and London, but the chance of this happening is extremely less.
 
-The coming future of the EU largely matters what happens to the Government of Germany, as many of their citizens are turning toward nationalistic ideals. How the EU handles the refugee crises will also make an impression.
+The coming future of the EU largely matters what happens to the Government of Germany, as many of their citizens are turning toward nationalistic ideals. How the EU handles the refugee crises and Brexit will also make an impression.
+
+EU disintegration is more plausible than ever before.
